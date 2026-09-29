@@ -47,6 +47,6 @@ https://lernix.com.my/microsoft-365-certification-training-courses-malaysia/
 
 
 
-Kuala Lumpur, Malaysia 4 Days RM 3,300
+
 MS-900T01: Microsoft 365 Fundamentals
 Kuala Lumpur, Malaysia 1 Days RM 1,30
